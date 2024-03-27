@@ -1,1 +1,1 @@
-# File-d-attente
+discord.gg/gshop
